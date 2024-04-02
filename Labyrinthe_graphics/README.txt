@@ -1,0 +1,1 @@
+# Lien pour continuer la vidéo : https://www.youtube.com/watch?v=UCkj5aH4dGA&list=PLlSozz45R0UaUBNkrZ2Lr4ZNcaW8aHL3V&index=2
